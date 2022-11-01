@@ -1,3 +1,4 @@
 # SyaimanRyan
-This project is about  education
-BLALALALALALAL
+This project is about education
+Project Ideas: - 
+
